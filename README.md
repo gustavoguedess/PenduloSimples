@@ -4,5 +4,5 @@ Link do YouTube: https://youtu.be/ZQYfR7suN9I
 
 Equipe:   Rafael Rosa, Gustavo Guedes, Pablo Sene
                   
-Orientador: Prof. Rafael Barreto
+Orientador: Prof. Dr. Rafael C. Barreto
 
